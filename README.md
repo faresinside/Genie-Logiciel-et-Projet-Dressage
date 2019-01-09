@@ -1,1 +1,1 @@
-# G-nie-Logiciel-et-Projet-Dressage
+# Genie-Logiciel-et-Projet-Dressage
